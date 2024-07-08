@@ -22,15 +22,22 @@ Owner ProCatRon the update Fils <Thx all download Free >
 #--------------------------
 ------------------------------------------------------------
 #“    Ver 2.26 Mid download Google the Ver XpWI The ver 2.35 XpWI                                                                  ”
-#The Ver 2024/7/6 = Ver Mid 2.26 V2.00 
+# The Ver 2024/7/6 = Ver Mid 2.26 V2.00 
 Not the new 2.35 XpWI = 2024/7/13
    
  
 #I can the Ron helping you “ProCatRon” Ver Mid 2.26 V2.00   I can download Google 
 
 #I can the Owner ProCatRon :Helping you:
-#!The All Save I can you del in fil BoUpd Win!
+# !The All Save I can you del in fil BoUpd Win!
 -----------------------------------------------------------------------
+
+
+<
+# i can you the download Ver 2,00 you the not download ver Mid 2,26 V2.00
+
+# https://github.com/seig2019/ProCatRonBeta
+>
 
 
 
